@@ -8,7 +8,9 @@
 𝐇𝐞𝐲 𝐲𝐨, 𝐖𝐞𝐬𝐭𝐞𝐫𝐛𝐞𝐫𝐠
 
 <div align="center">
-
+  
+♯ ⋮  𝄞 [@prettylittlelaces](https://github.com/prettylittlelaces) ༉  .ᐟ ★ [@daredbythedevil](https://github.com/daredbythedevil) 𝜗𝜚˚⋆ [@vvhiteferarri](https://github.com/vvhiteferarri) 𓏵‧₊˚ ┊
+<div align="center">
 <img width="1200" height="400" alt="9a6b58df364639d182e8d9fe38c605e3" src="https://github.com/user-attachments/assets/956b494d-4d1e-4777-b6d5-81eff63c3346" />
 
 <div align="center">
