@@ -10,7 +10,7 @@
 ────୨ৎ────
 <div align="center">
   
-♯ ⋮  𝄞 @[prettylittlelaces](https://github.com/prettylittlelaces) ༉  .ᐟ ★  @[daredbythedevil](https://github.com/daredbythedevil) 𝜗𝜚˚⋆  @[vvhiteferarri](https://github.com/vvhiteferarri) 𓏵‧₊˚ ┊
+♯ ⋮  𝄞 @[prettylittlelaces](https://github.com/prettylittlelaces) ༉  .ᐟ ★  @[daredbythedevil](https://github.com/daredbythedevil) 𝜗𝜚˚⋆  @[heavenisabedroom](https://github.com/heavenisabedroom) 𓏵‧₊˚ ┊
 <div align="center">
 ────୨ৎ────
   <div align="center">
